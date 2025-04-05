@@ -1,6 +1,6 @@
 # 💰 ANSAITSE RAHAA VASTAAMALLA KYSELYIHIN 💰
 
-[![LIITY NYT KULUTTAJAPANEELIIN](https://img.shields.io/badge/REKISTER%C3%96IDY%20NYT-Ansaitse%20jopa%204%E2%82%AC%20per%20kysely-2980b9?style=for-the-badge)](https://go.adt231.net/t/t?a=1494304945&as=1860056955&t=2&tk=1)
+## [👉 KLIKKAA TÄSTÄ JA LIITY KULUTTAJAPANEELIIN NYT! 👈](https://go.adt231.net/t/t?a=1494304945&as=1860056955&t=2&tk=1)
 
 ## Mikä on Kuluttajapaneeli?
 
@@ -11,6 +11,8 @@ Samalla kun jaat mielipiteesi, ansaitset lisätienestiä. **Voit ansaita jopa 4 
 > ### ✅ Tienaa rahaa netissä helposti
 > 
 > Kuluttajapaneelin jäsenenä saat säännöllisesti kutsuja kyselyihin, jotka sopivat profiiliisi. Vastaat kyselyihin silloin kun sinulle sopii - kotona, työmatkoilla tai vaikka puistossa!
+
+## [👉 KLIKKAA TÄSTÄ JA ALOITA ANSAITSEMINEN HETI! 👈](https://go.adt231.net/t/t?a=1494304945&as=1860056955&t=2&tk=1)
 
 ## Palkkiovaihtoehdot
 
@@ -24,9 +26,11 @@ Kun olet ansainnut tarpeeksi kyselyillä, voit lunastaa palkkiot usealla eri tav
 > 
 > Minimilunastussumma Paypal-lunastuksessa on 12,50 euroa ja lahjakorteissa 10 euroa. Mitä enemmän kyselyihin vastaat, sitä nopeammin voit lunastaa palkkiosi!
 
+## [👉 KLIKKAA TÄSTÄ JA REKISTERÖIDY ILMAISEKSI! 👈](https://go.adt231.net/t/t?a=1494304945&as=1860056955&t=2&tk=1)
+
 ## Näin se toimii
 
-1. Rekisteröidy Kuluttajapaneeliin täyttämällä yksinkertainen lomake.
+1. [Klikkaa tästä ja rekisteröidy](https://go.adt231.net/t/t?a=1494304945&as=1860056955&t=2&tk=1) Kuluttajapaneeliin täyttämällä yksinkertainen lomake.
 2. Vahvista liittymisesi sähköpostiisi saapuvan aktivointilinkin kautta.
 3. Täydennä profiilisi esitietokysymykset huolella, jotta saat kohdennettuja kyselykutsuja.
 4. Vastaanota kyselykutsuja sähköpostiisi ja vastaa niihin oman aikataulusi mukaan.
@@ -40,7 +44,7 @@ Kun olet ansainnut tarpeeksi kyselyillä, voit lunastaa palkkiot usealla eri tav
 
 Tunnetut brändit haluavat kuulla mielipiteesi. Vastaamalla kyselyihin voit vaikuttaa siihen, millaisia tuotteita ja palveluita markkinoille tulee tulevaisuudessa. Samalla tienaat mukavaa lisätuloa!
 
-[![ALOITA ANSAITSEMINEN NYT](https://img.shields.io/badge/REKISTER%C3%96IDY%20T%C3%84ST%C3%84-Liity%20tuhansien%20suomalaisten%20joukkoon-2980b9?style=for-the-badge)](https://go.adt231.net/t/t?a=1494304945&as=1860056955&t=2&tk=1)
+## [👉 KLIKKAA TÄSTÄ JA LIITY TUHANSIEN SUOMALAISTEN JOUKKOON! 👈](https://go.adt231.net/t/t?a=1494304945&as=1860056955&t=2&tk=1)
 
 ---
 
